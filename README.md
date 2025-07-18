@@ -29,7 +29,7 @@
 ## 📫 Kontakt
 
 📧 E-Mail: katarina.zupa@proton.me
-🔗 LinkedIn: [linkedin.com/in/katarinazupa]([https://www.linkedin.com/in/katarina-zupa-a34699226/)
+🔗 LinkedIn: [https://www.linkedin.com/in/katarina-zupa-a34699226/)
 
 ---
 
