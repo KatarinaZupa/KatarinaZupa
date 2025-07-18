@@ -1,7 +1,7 @@
 # 👋 Hallo! Ich bin Katarina
 
 🎓 Studentin im Studiengang **AI in Business (B.Sc.)** an der IU Internationale Hochschule  
-📍 Ab Februar 2025 | Fokus: **Data Analytics, Business Intelligence, NLP & Automatisierung**
+📍 Ab August 2025 | Fokus: **Data Analytics, Business Intelligence, NLP & Automatisierung**
 
 ---
 
